@@ -6,7 +6,7 @@ Engineering Student at National School of Electronics and Telecommunications of 
 - ✨ I am a motivated and responsible person .
 - 📫 How to reach me : do not hesitate to contact me on my Linkedln messaging or email.
 - LinkedIn URL : https://www.linkedin.com/in/ameni-chaabouni-3488181b4/
-- E-mail : amenichaabouni248@gmail.com
+- E-mail : ameni.chaabouni@enetcom.u-sfax.tn
 - Facebook URL : https://www.facebook.com/ameni.chaabouni.52/
 
 *********You're Welcome To My Profile*********
