@@ -114,7 +114,7 @@
 </li>
 
 <li>
-<a href="mailto:Amenichaabouni@xlainer.com" target="_blank">
+<a href="mailto:chaabouniameni@outlook.com" target="_blank">
 <img src="https://img.shields.io/badge/email-black?logo=gmail" />
 </a>
 </li>
